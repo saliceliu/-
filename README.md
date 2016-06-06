@@ -4,7 +4,7 @@ try out
 
 Hi, my name is Rosie. I'm here to learn. This world is hopeless. Bye.
 
-何を?
+?
 
 楔の歌詞を書きたいと思います
 
@@ -15,3 +15,12 @@ wow wow 叫べ
 
 feel 深い　闇を　超えて
 月の素顔見つめて
+
+
+実はですね
+さっき、何を消えました
+さぁ、消えたものは何でしょか
+
+
+答えは
+何を消えましたwww
