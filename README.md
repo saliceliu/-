@@ -1,8 +1,10 @@
 # -
 try out
+私はハイフンだぜ!!
 
 Hi, my name is Rosie. I'm here to learn. This world is hopeless. Bye.
-私はハイフンだぜ!!
+
+何を?
 
 楔の歌詞を書きたいと思います
 
